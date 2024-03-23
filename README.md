@@ -16,3 +16,7 @@ i will deploy you to the frontlines my nword.
 ## How to Contribute
 
 dedicate your hearts
+
+## copyright
+
+kase i onw lahat
