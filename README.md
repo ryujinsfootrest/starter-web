@@ -11,4 +11,8 @@ Sample website with plenty of files for demos
 
 ## Deployment
 
+i will deploy you to the frontlines my nword.
+
 ## How to Contribute
+
+dedicate your hearts
