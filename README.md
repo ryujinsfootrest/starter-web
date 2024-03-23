@@ -20,3 +20,5 @@ dedicate your hearts
 ## copyright
 
 kase i onw lahat
+
+**added fororor para compare sa mster
